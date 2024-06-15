@@ -1,2 +1,2 @@
 ## Hi there 👋
-Author - Jatin Indwar
+Author - Jatin Indwar(jtnxyz)
